@@ -1,1 +1,5 @@
-# apresenta-o
+OLA SOU O FELIPE
+
+ESTOU ESTUDANDO NA ALURA
+
+MEU E-MAIL É 00001068197614sp@al.educacao.sp.gov.br
